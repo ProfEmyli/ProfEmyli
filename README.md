@@ -1,6 +1,6 @@
 ### Boas Vindas ao meu Perfil 🥭
 
-Meu nome é Emyli Clemente 
+Meu nome é Emyli Clemente
 
 - Sou professora, estou estudando na Alura 
 - Eu me desenvolvendo na linguaguem JavaScript
