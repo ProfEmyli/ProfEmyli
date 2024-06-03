@@ -14,3 +14,6 @@ emyli@prof.educacao.sp.gov.br
 
 ![](https://media.tenor.com/LO5LF4ge6jgAAAAM/teq-ultimate-gohan-teen-gohan.gif)
 
+![](https://media1.tenor.com/m/A5v3dhQbx8MAAAAC/goku-lr-teq-ssg-goku-and-vegeta.gif)
+
+![](https://media1.tenor.com/m/WTWd1tNVxzYAAAAC/goku.gif)
